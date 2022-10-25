@@ -75,7 +75,9 @@ To get a local copy up and running follow these simple example steps.
 - [abrahamibizugbe](https://twitter.com/AbrahamIbizugbe)
 - [Abraham Ibizugbe](https://www.linkedin.com/in/abrahamibizugbe/)
 
-👤 **Rose Okpe**
+👤 **ROSE OKPE**
+
+Click 👇 to connect
 
 - [GitHub](https://github.com/roseokpe)
 - [Twitter](https://twitter.com/roseokpe)
